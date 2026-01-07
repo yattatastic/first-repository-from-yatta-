@@ -1,5 +1,5 @@
 # yattatastic
-![image alt](a109e6c34ed90378915d881c01dd9490.jpg)
+![image alt](https://github.com/yattatastic/first-repository-from-yatta-/blob/0c3d3e3323aba78b8d9e53954c51e53575b9843a/39908b6c31957d88aa16acdac0d60359.jpg)
 
 ◟ yatta fictkin . 
 ︵ she / they ― dni list below !
