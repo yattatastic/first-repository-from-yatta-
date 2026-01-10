@@ -9,4 +9,4 @@ dni ⪼ 18+ , disgusting people , immature folks
 
 ⊱ interact always if youre not on the dni list ! c+h enc
 
-ʚ𖦹ɞ love me.
+⊹₊˚‧︵‿₊૮꒰˶  - ˕ -꒱ა₊‿︵‧˚₊⊹
